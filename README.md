@@ -1,6 +1,6 @@
-![Viking Jonayet](https://muse.ai/files/1496772440180195/989703270419144/c75n8rst55aazlpycpmipp23/vikingia-instagram.jpg)
+![Viking Army](https://muse.ai/files/1496772440180195/989703270419144/c75n8rst55aazlpycpmipp23/vikingia-instagram.jpg)
 
-# Hi, I am Viking Jonayet ⚔️
+# Hi, I am Viking Army ⚔️
 
 Building Vikingia, a Web3 community village where people meet, contribute, create and build together.
 
