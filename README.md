@@ -44,3 +44,15 @@ What we are building together:
 
 
 The village is open to everyone. Come and see it at https://vikingia.online and join our Telegram village here https://t.me/+kLPHWx3yqu44ZWJk
+
+
+## The Homelands
+
+
+The Vikings came from Norway, Sweden and Denmark. Those three countries are where our story begins, and their people are the heart of this village.
+
+
+Norway brings the fjords and the longships. Sweden brings the builders and the traders. Denmark brings the storytellers and the first Viking towns. Together they remind us that a village is not a place on a map. It is the people who gather there.
+
+
+If you are from Norway, Sweden or Denmark, this village is your home too. And if you are from anywhere else, the gate is open just the same. Come and see it at https://vikingia.online and join our Telegram village here https://t.me/+kLPHWx3yqu44ZWJk
