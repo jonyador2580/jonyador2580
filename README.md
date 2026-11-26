@@ -27,3 +27,20 @@ Vikingia is a community first village. The village comes first, VIKA is still un
 * Telegram: https://t.me/+kLPHWx3yqu44ZWJk
 * Instagram: https://www.instagram.com/vikingarmy123
 * Threads: https://www.threads.com/@vikingarmy123
+
+
+## Village Life
+
+
+Every day in Vikingia starts the same way. Someone lights the fire, someone opens the gate, and the village comes alive. Builders share what they are making, traders share what they learned, and storytellers keep the old tales warm for the new arrivals.
+
+
+What we are building together:
+
+
+* A village where everyone can contribute, no matter their skill
+* A friendly Web3 community that puts people before hype
+* A place to learn, create and grow side by side
+
+
+The village is open to everyone. Come and see it at https://vikingia.online and join our Telegram village here https://t.me/+kLPHWx3yqu44ZWJk
